@@ -20,3 +20,4 @@ must
 Zetachain again(
 L0 snapshot done!
 New day
+L0 sybil attack
