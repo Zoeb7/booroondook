@@ -24,4 +24,5 @@ L0 sybil attack
 Wen Notcoin
 old
 zaebali
-ZK is the End game!!!
+ZkSync is the End Game!!!
+Wen blyat
