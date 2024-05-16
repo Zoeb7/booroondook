@@ -31,3 +31,4 @@ Jumpstart
 458 NOT
 Tomorow
 NOTcoin Day!
+Binance znatno podebal. Where is my coins???
