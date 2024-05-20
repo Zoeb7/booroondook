@@ -29,6 +29,8 @@ Wen blyat
 tyred drink
 Jumpstart
 458 NOT
-Tomorow
+Tomorowal. Where is my coins???
+
 NOTcoin Day!
-Binance znatno podebal. Where is my coins???
+Binance znatno podeb
+shaurma
